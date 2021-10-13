@@ -1,4 +1,3 @@
-# Meet Cyranium
 ### Hello i am Cyranium.
 I am a Music artist and a student.
 I am interested in Music, Driving and Tech.
